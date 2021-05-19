@@ -1,0 +1,1 @@
+Skilled in SQL Database ,Java , CPP. Have prime interest in Data Science and Machine Learning. Have good control over programming , database management, etc. Strong educated professional with a Bachelor of Technology with majors in Computer Science and Engineering from Amity University ,Kolkata, graduating in 2021.
